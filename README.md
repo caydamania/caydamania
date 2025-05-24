@@ -1,1 +1,17 @@
-![wkblinkie](https://media.discordapp.net/attachments/646180831471337482/1338277937778262016/blinkiesCafe-iU.gif?ex=67aa7ff4&is=67a92e74&hm=f0505a0763928931a646794dfcb35cc7e60b92a1f8b41b808aa8b0714301fce0&=&width=450&height=60) ![wlwblinkie](https://media.discordapp.net/attachments/646180831471337482/1338279323496484915/blinkiesCafe-sL.gif?ex=67aa813e&is=67a92fbe&hm=ff517de89a1181f1ac1ce4c9827876aec922161d1071d4e389c1523462eb1a18&=&width=450&height=60)
+DNI
+
+• mspec / bi-lesbians / lesboys (lesbian is and always has been women loving women, thank you)
+
+• comshippers / proshippers
+
+• preds / pedos
+
+• racists
+
+• homophobes / transphobes
+
+• zoos
+
+• illness / disability fakers
+
+• talk about weed a lot (makes me uncomfortable, sorry)
