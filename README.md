@@ -1,6 +1,6 @@
 DNI
 
-• mspec / bi-lesbians / gaybians / lesboys (lesbian is and always has been women loving women, thank you)
+• mspec / bi-lesbians / gaybians / lesboys (lesbians do not like men, nor can they BE men: trans and cis! thank you!!!)
 
 • comshippers / proshippers
 
